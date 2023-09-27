@@ -1,5 +1,5 @@
 # SpecialNeedsGaming2003.github.io
-My Special Needs/Disability Gaming Experiments
+My Special Needs/Disability Gaming Experiments.
 👋 Hi, I’m @SpecialNeedsGaming2003
 👀 I’m interested in... Making the world a better place by thinking about how to make it accessible.
 🌱 I’m currently learning... Games, Animation & VFX.
